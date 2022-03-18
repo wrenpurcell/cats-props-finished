@@ -1,1 +1,1 @@
-Finsihed Cats Props Walkthrough
+Finished Cats Props Walkthrough
