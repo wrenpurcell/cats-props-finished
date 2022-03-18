@@ -1,2 +1,1 @@
-Cats Contact Cards Lesson 
-Skeleton project to get started 
+Finsihed Cats Props Walkthrough
